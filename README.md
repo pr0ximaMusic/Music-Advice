@@ -78,7 +78,7 @@ Ask yourself some questions:
  
 Find tracks that feel to you like they have some kind of “secret sauce” quality to them. 
 
-Practice understanding and communnicating what you think that secret sauce is. Then, start trying to replicate that secret sauce on your own.  
+Practice understanding and communicating *IN WORDS* what you think that secret sauce is. Then, start trying to replicate that secret sauce on your own.  
 
 During this process, don't worry about fears like "oh no, does that mean I'm unoriginal?" because I guarantee your originality and creativity will make itself present in your art when attempting to replicate that secret sauce. The originality is baked-in to everything you make like a fingerprint. Your originality is present whether you like it or not.
 
