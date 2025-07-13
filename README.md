@@ -31,7 +31,7 @@ Take every opportunity to learn about a concept when you discover the terminolog
 > Someone says you're slamming your limiter, but you've never used a limiter in your life.
 > GO. FIND. OUT. 
 
-Do this **both** reading up on it, and also through hands-on exploration in-daw.
+Do this **both** through reading up on it, and also through hands-on exploration in-daw.
 
   You’ll quickly start to realize that “finding out” is not solely about the specific thing you're learning, it’s about establishing a habit of fostering curiosity and exploration when you're challenged. <br>
 
