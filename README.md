@@ -43,7 +43,7 @@ Do this **both** through reading up on it, and also through hands-on exploration
 
 Always challenge yourself on every new track, even if it’s just a small challenge.
 
-It’s like playing a game with specific little rules. When you're starting a new project in Ableton, impose limitations on what you can and can't do this time around. If you can have a goal to explore some production concept for each time you open the daw, do it. Even if you don't come in with a concept to explore, you'll find one just dicking around. Hone. in. on. that. shit. 
+It’s like playing a game with specific little rules. When you're starting a new project in Ableton, impose limitations on what you can and can't do this time around. If you can have a goal to explore some production concept each time you open the daw, do it. Even if you don't come in with a concept to explore, you'll find one just dicking around. Hone. in. on. that. shit. 
 
 Make a track with the goal of only having 9 elements MAX. 
 Practice spamming sound design ideas.  
